@@ -1,2 +1,2 @@
 # 8B-PakAR-WawasanDanAplikasiTeknologi
-Pengumpulan tugas 
+Pengumpulan Uas 
